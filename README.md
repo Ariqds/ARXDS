@@ -1,2 +1,3 @@
 # ARXDS
-:)
+LEARNING NEW PROGRAM
+#
